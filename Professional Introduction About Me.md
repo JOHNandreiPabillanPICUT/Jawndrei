@@ -22,6 +22,8 @@ I’m John Andrei P. Picut, a **Bachelor of Science in Information Technology (B
 
 I am eager to **learn, collaborate, and contribute** to projects that blend **IT and HCI principles** to create **intuitive digital experiences**.  
 
+Contact me at my email account -> jopa.picut.coc@phinmaed.com
+
 ![cat-dancing-gif-8](https://github.com/user-attachments/assets/5c5e5eb8-6bed-40be-bc39-760c45f8cf93)
 
 
