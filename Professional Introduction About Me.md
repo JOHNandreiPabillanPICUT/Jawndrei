@@ -24,7 +24,9 @@ I am eager to **learn, collaborate, and contribute** to projects that blend **IT
 
 Contact me at my email account -> jopa.picut.coc@phinmaed.com
 
-![cat-dancing-gif-8](https://github.com/user-attachments/assets/5c5e5eb8-6bed-40be-bc39-760c45f8cf93)
+![pc-ezgif com-resize](https://github.com/user-attachments/assets/065c6ce0-fb2f-4d32-bc45-4d3deba59866)
+![Apersonusingacomputer-ezgif com-resize](https://github.com/user-attachments/assets/2935b41f-9169-4b18-b2ae-4a5e2465e750)
+![cat-dancing-gif-8-ezgif com-resize](https://github.com/user-attachments/assets/451033f2-071a-40b0-8197-096c383f5ac7)
 
 
 
